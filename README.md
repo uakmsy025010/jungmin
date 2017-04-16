@@ -1,3 +1,4 @@
 # jungmin
-a first text.file
-add 1 line 
+knowing and acting
+able to practicing
+
